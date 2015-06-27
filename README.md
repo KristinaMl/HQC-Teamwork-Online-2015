@@ -2,7 +2,7 @@
 
 ---
 
-#High-Quality Programming Code <br/>Team Projects – May – July 2014
+#High-Quality Programming Code <br/>Teamwork Project – June – October 2015
 
 ##Contributors:
 
